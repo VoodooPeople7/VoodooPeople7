@@ -1,8 +1,10 @@
 About me！！ˆᗜˆ
 
-→call me Eva or Fez
+→ call me Eva or Fez
 
-→heterosexual, aegosexual, bigender and fictosexual
+→ TR/EN
+
+→ heterosexual, aegosexual, bigender and fictosexual
 
 → ♋︎, INFP, ambivert, α/𝐀
 
