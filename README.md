@@ -12,7 +12,7 @@ About me！！ˆᗜˆ
 
 → Mood swings 
 
-→ i might seem rude sometimes, i cant help it. I try to be polite, but that's not really possible when I'm angry.
+→ i might seem rude sometimes, i cant help it. I try to be polite, but that's not really possible when I'm angry. Also, i get angry easily
 
 → friend or not, i would like to play or talk with you
 
