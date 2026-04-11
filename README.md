@@ -1,7 +1,7 @@
 About me！！ˆᗜˆ
 
-→ call me Eva or Fez
-→ heterosexual, aegosexual, bigender and fictosexual
+ call me Eva or Fez 
+ heterosexual, aegosexual, bigender and fictosexual 
 → ♋︎, INFP, ambivert, α/𝐀
 → Mood swings 
 → i might seem rude sometimes, i cant help it. I try to be polite, but that's not really possible when I'm angry.
