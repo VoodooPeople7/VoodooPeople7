@@ -12,5 +12,5 @@ About me！！ˆᗜˆ
 
 → friend or not, i would like to play or talk with you
 
-→ mostly trying to keep my mood up
+→ mostly trying to keep my mood up and be happy
 
