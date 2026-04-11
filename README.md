@@ -16,6 +16,6 @@ About me！！ˆᗜˆ
 
 → mostly trying to keep my mood up and be happy
 
-→ i don't like shipping characters or people, expect OC and canon ships. if i see a cute ship, i just say "aww theyre cute together" and mind my own business
+→ i don't like shipping characters or people. if i see a cute ship, i just say "aww theyre cute together" and mind my own business
 
 → i LOVE talking about OCs. I plan to create my own animated series in the future
