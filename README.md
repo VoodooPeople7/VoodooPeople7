@@ -16,7 +16,7 @@ About me！！ˆᗜˆ
 
 → friend or not, i would like to play or talk with you
 
-→ mostly trying to keep my mood up and be happy
+→ mostly trying to keep my mood up and be happy. I have a problem but I cant quite figure out what it is
 
 → i don't like shipping characters or people. if i see a cute ship, i just say "aww theyre cute together" and mind my own business
 
