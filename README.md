@@ -1,4 +1,8 @@
-![image alt](https://github.com/user-attachments/assets/39bb1a46-776b-4beb-99e4-e72e6ac9dea9")
+
+
+![image alt](<img width="720" height="390" alt="17826491311258458014640582015532" src="https://github.com/user-attachments/assets/9df584ed-c843-42cd-afc7-137f84d48add" />)
+
+
 
 
 About me！！ˆᗜˆ
