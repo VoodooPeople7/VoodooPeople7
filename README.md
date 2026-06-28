@@ -1,3 +1,6 @@
+![image alt](<img width="720" height="390" alt="17826468846102014351620642884695" src="https://github.com/user-attachments/assets/39bb1a46-776b-4beb-99e4-e72e6ac9dea9" />)
+
+
 About me！！ˆᗜˆ
 
 → call me Eva or Fez
