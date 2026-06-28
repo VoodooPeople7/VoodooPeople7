@@ -85,12 +85,28 @@ random images/favorites etc. :
 -
 
 
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/7958cba73bd6a727983c6a43de1ff00739042bb8/asmo-obey-me-new-ur-plus-card.gif)
 
 
+-
 
 
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/e99966f7057f1fa13906da132967ae5ac3e4dbec/8dab53eff113f665f05e30eabd4388d7.jpg)
 
 
+-
+
+
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/8f0019c6d5b8e4072e6784fae431eae8986aa64b/0c4a52e0ea7f519c5652589de5ed8165%20(1).jpg)
+
+
+-
+
+
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/5efbc43d66013c56dea82a1bb5e4fda85dc582f1/giphy.gif)
+
+
+-
 
 
 
