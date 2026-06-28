@@ -1,7 +1,7 @@
 
 
 
-![image alt](https://github.com/user-attachments/assets/9df584ed-c843-42cd-afc7-137f84d48add.png)
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/396fbface292ed17e968f780c9c26b8633471472/e1a52fd7b7c7bf3796bc59562c406c13.jpg)
 
 
 
