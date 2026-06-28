@@ -73,16 +73,16 @@ random images/favorites etc. :
 -
 
 
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/19efd42e74c04b7ab803e2de122a1f93ce1fe834/tumblr_07ef2eb2502d11a0b17ca3171886854a_bac0c9c6_540.gif)
 
 
+-
 
 
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/5a5ddca670a218275d76d02fef39b4adfe66aae3/billy-kid-billy-the-kid.gif)
 
 
-
-
-
-
+-
 
 
 
