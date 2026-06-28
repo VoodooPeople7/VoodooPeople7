@@ -34,3 +34,7 @@ About me！！ˆᗜˆ
 → i don't like shipping characters or people. if i see a cute ship, i just say "aww theyre cute together" and mind my own business
 
 → i LOVE talking about OCs. I plan to create my own animated series in the future
+
+
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/990f05da0aaefd0414f9807f2d2a8aa410b79d01/tumblr_cda11da1a769e455fcfddec2697b369e_1a0d57a2_540.gif)
+
