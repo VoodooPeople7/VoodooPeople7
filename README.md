@@ -40,4 +40,12 @@ About me！！ˆᗜˆ
 
 random images/favorites etc. :
 
+-
+
+
 ![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/d965a334f25a293a846d5c3160f3ce3171a3793a/tumblr_425421c9894cfb5824e4bdf0b157ab2f_00dca609_1280.gif)
+
+
+-
+
+
