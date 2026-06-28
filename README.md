@@ -1,10 +1,5 @@
 
 
-
-![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/3e00d78e5441df1b57180f331c8cf0becc6c8722/novaababy_pindown.io_1782652169.gif)
-
-
-
 About me！！ˆᗜˆ
 
 → call me Eva or Fez
@@ -16,10 +11,6 @@ About me！！ˆᗜˆ
 → ♋︎, INFP, ambivert, α/𝐀
 
 → multifandom
-
-
-![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/1c93f1153748ce22ac54cfe200b1d9158a13945a/ssstik.io_%40webi_b0x_1782647570745.mp4)
-
 
 → Mood swings 
 
