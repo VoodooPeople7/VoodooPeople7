@@ -49,3 +49,51 @@ random images/favorites etc. :
 -
 
 
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/1ed41736ff0433c2d79b12c25e27b772266682e6/made-some-gifs-from-round-7-since-i-noticed-there-arent-any-v0-czf7gdh4haxd1.gif)
+
+
+-
+
+
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/be37d16afc276a96b5ffd1e374c1eb13ce1dd459/bakugou-katsuki.gif)
+
+
+-
+
+
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/af3a0d7ddda578e39e785f04aeea3afb9a3c5777/gy4CGQ.gif)
+
+
+-
+
+
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/9aef70b19f364721315176a60a27e430d4608153/43dd81f5c2c3e078e5b74f48530e7c81_7245495304394577200.gif)
+
+
+-
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
