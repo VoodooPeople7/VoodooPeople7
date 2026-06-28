@@ -23,6 +23,10 @@ About me！！ˆᗜˆ
 
 → i might seem rude sometimes, i cant help it. I try to be polite, but that's not really possible when I'm angry. Also, i get angry easily
 
+
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/5c2e0e729300c3a35808ef47524d29f2bee6b271/Pluiurin_pindown.io_1782652764.gif)
+
+
 → friend or not, i would like to play or talk with you
 
 → mostly trying to keep my mood up and be happy. I have a problem but I cant quite figure out what it is
