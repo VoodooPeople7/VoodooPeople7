@@ -109,6 +109,22 @@ random images/favorites etc. :
 -
 
 
+![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/f2dcb20420dd8eeea29ec67df275166fea2607ef/abnormality-dancing-girl-vocaloid.gif)
+
+
+-
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
