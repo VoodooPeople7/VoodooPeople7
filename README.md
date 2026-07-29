@@ -1,3 +1,5 @@
+(i will remake this soon)
+
 
 
 ![image alt](https://github.com/VoodooPeople7/VoodooPeople7/blob/e68d64a31ae10819364432172243ef1df83b15eb/e1a52fd7b7c7bf3796bc59562c406c13.jpg)
