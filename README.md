@@ -13,7 +13,7 @@ About me！！ˆᗜˆ
 
 → heterosexual, aegosexual, bigender and fictosexual
 
-→ ♋︎, INFP, ambivert, α/𝐀
+→ ♋︎, INFP, α/𝐀
 
 → multifandom
 
